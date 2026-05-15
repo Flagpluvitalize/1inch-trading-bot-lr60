@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite Automation Script for pancakeswap trading bot | auto-compounding + rug-pull-detection, the #1 pancakeswap trading bot. Includes auto-compounding
 
 
 
